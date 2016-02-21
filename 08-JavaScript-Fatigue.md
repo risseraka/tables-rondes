@@ -25,3 +25,4 @@ Membres | Statut |
 @skinnyfoetusboy | 👾
 @arnaudlimbourg | 🦀
 @matti_sg | 💖
+@risseraka | 🖕
